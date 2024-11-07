@@ -1,4 +1,4 @@
-![Los Angeles skyline](la_skyline.jpg)
+![Los Angeles skyline]([la_skyline.jpg](https://www.reddit.com/r/LosAngeles/comments/17gisbe/where_was_this_skyline_of_downtown_los_angeles/?rdt=57874))
 
 Los Angeles, California 😎. The City of Angels. Tinseltown. The Entertainment Capital of the World! 
 
