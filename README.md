@@ -1,4 +1,4 @@
-
+![LA-1619678562883-7f77b7c68d3c](https://github.com/user-attachments/assets/05d918ea-7de7-4288-a490-9a7afc1f7116)
 Los Angeles, California 😎. The City of Angels. Tinseltown. The Entertainment Capital of the World! 
 
 Known for its warm weather, palm trees, sprawling coastline, and Hollywood, along with producing some of the most iconic films and songs. However, as with any highly populated city, it isn't always glamorous and there can be a large volume of crime. That's where you can help!
